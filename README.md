@@ -47,3 +47,5 @@
 - Trabalhando constantemente 
 - Expandindo o conhecimento e construindo grandes amizades no caminho
 
+**Dê uma olhada em alguns dos meus projetos logo abaixo!** :arrow_down:
+
